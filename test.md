@@ -1,0 +1,1 @@
+War isn't about who's RIGHT, it's about who's LEFT!
